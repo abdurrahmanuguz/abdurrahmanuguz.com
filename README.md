@@ -1,1 +1,1 @@
-# abdurrahmanuguz.github.io
+# abdurrahmanuguz.com
